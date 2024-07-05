@@ -8,7 +8,6 @@
 - 📫 How to reach me "Linkedin : Prapti Bishen"
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Need to think.....😅
-
   ![cat](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHd1NzMwY2UyMm81djE5OTZydXJ2OHdmd3Q4ZzE1ZHNtMG93dWJicyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/eg4q8ka6zQuQ2qgKwe/giphy.gif)
 
 <!---

@@ -7,6 +7,8 @@
 - ⚡ Fun fact: Need to think.....😅
 
 ![](https://komarev.com/ghpvc/?username=Bishenp24199)
+![Profile Views](https://rushter.com/counter.svg)
+
 
 
 <!---

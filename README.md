@@ -7,7 +7,7 @@
 - ⚡ Fun fact: Need to think.....😅
 
 ![](https://komarev.com/ghpvc/?username=Bishenp24199)
-![Visitor Count](https://profile-counter.glitch.me/)
+![Visitor Count](https://profile-counter.glitch.me/Bishenp24199)
 
 
 

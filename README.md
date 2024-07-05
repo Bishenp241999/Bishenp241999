@@ -1,3 +1,6 @@
+
+  ![](https://komarev.com/ghpvc/?username=Bishenp24199&color=blueviolet&style=plastic&abbreviated=true)
+  
 - 👋 Hi, I’m @Bishenp241999
 - 👀 I’m interested in Full Stack Web Development✨
 - 🌱 I’m currently learning JavaScript in-depth, Working on some basic html,css projects under instructors guidance and Working on React as well.
@@ -6,7 +9,7 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Need to think.....😅
   
-  ![](https://komarev.com/ghpvc/?username=Bishenp24199&color=blueviolet&style=plastic&abbreviated=true)
+
 
 
 

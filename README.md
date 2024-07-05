@@ -9,8 +9,8 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Need to think.....😅
 
-  ![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
-  https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExa2p2czQwZWFyMHNmZ241c2JzZDVtczBiYncyejQ5bzl0bXd1ZzFrNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/JIX9t2j0ZTN9S/giphy.gif
+  ![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif
+  !catwoking(https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExa2p2czQwZWFyMHNmZ241c2JzZDVtczBiYncyejQ5bzl0bXd1ZzFrNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/JIX9t2j0ZTN9S/giphy.gif)
   
 
 

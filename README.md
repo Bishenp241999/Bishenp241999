@@ -5,7 +5,7 @@
 - 📫 How to reach me "Linkedin : Prapti Bishen"
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Need to think.....😅
-- ![](https://komarev.com/ghpvc/?username=your-github-username&color=purple&abbreviated=true)
+- ![](https://komarev.com/ghpvc/?username=your-github-username&color=blueviolet&style=plastic&abbreviated=true)
 
 
 

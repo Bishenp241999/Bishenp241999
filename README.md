@@ -9,7 +9,7 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Need to think.....😅
 
-  ![cat](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExa2p2czQwZWFyMHNmZ241c2JzZDVtczBiYncyejQ5bzl0bXd1ZzFrNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/JIX9t2j0ZTN9S/giphy.gif)
+  ![cat](https://media.giphy.com/media/YshYTgWWi7NZgCOPGa/giphy.gif?cid=790b7611kmgmaiad91maxhd1ykhlayiqadhvk2ja3i6tush7&ep=v1_stickers_search&rid=giphy.gif&ct=s)
   
 
 
